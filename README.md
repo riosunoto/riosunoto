@@ -1,5 +1,5 @@
 # 💫 About Me:
-🏢 I"m curently working Graphic designer professional<br>☕️ Coffee addict and foodie enthusiast<br>🤝I'm looking to collaborate to bussiness
+🏢 I"m curently working Graphic designer professional<br>☕️ Coffee addict and foodie enthusiast<br>🤝I'm looking to collaborate to business
 
 
 ## 🌐 Socials:
