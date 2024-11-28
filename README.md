@@ -1,4 +1,4 @@
-<b> 💫 About Me: </b>
+# 💫 About Me:
 🏢 I'm currently working Graphic designer and developer<br>☕️ Coffee addict and foodie enthusiast<br>🤝I'm looking to collaborate to business
 
 
